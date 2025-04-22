@@ -1,1 +1,1 @@
-# travel-addicts
+# Travel Addicts
